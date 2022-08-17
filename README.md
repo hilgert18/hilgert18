@@ -1,6 +1,6 @@
 - 👋 olá eu sou  @hilgert18
 - meu email de contato é kauana.hilgert@escola.pr.gov.br 
-- 👀eu estou interessado em aprenderv e progamar novas linguagens 
+- 👀eu estou interessado em aprender e progamar novas linguagens 
 - 🌱 eu estou aprendendo a progamar novas linguas 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me...
